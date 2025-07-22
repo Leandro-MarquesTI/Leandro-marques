@@ -45,8 +45,8 @@ Atualmente estudando:
 ---
 
 ## 📫 Contato
-- 📧 Email: seuemail@exemplo.com
-- 🌐 [LinkedIn](https://linkedin.com/in/seuusuario)
+- 📧 Email: leandromarquesnovorumo@gmail.com
+- 🌐 [LinkedIn](https://www.linkedin.com/in/leandro-marques-3748711a0/)
 - 💬 WhatsApp: (74) 9 9933-9467
 
 ---
